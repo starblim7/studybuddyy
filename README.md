@@ -1,2 +1,0 @@
-# studybuddyy
-school ;proj
